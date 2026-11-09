@@ -1,0 +1,1 @@
+Farid Stars Premium Bot
